@@ -1,1 +1,0 @@
-# Resume-robot-vacuum-cleaner
